@@ -1,1 +1,1 @@
-This is my second website project in 2017[D[D[D[D[D[Csummer 2017
+This is my second website project in summer 2017
